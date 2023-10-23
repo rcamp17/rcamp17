@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @rcamp17 and i like to be called Robin.
-- 👀 I’m interested in web design, 3D characters, rrss & games.
+- 👀 I’m interested in web design, rrss & discover new things.
 - 🌱 I’m currently learning web development and iu/ux design.
 - ✨ I’m looking to collaborate on projects that help me develop my skills and ideas, as well as to grow and learn.
 - 📫 How to reach me camp.rac1707@gmail.com 
